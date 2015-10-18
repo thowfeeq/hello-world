@@ -1,2 +1,4 @@
 # hello-world
-hey this is my 2nd repo....
+dont knwo why this thing was right under me nose
+but never thought of using it
+thsi is exactly what i needed!!!!
